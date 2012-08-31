@@ -1,0 +1,4 @@
+Okami
+=====
+
+Okami no Fansub
